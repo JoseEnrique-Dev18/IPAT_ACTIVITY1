@@ -1,1 +1,0 @@
-# IPAT_ACTIVITY1
